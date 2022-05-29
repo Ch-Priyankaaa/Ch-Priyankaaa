@@ -10,7 +10,7 @@
       👩‍💻 You can find all my projects and repositories at https://github.com/Ch-Priyankaaa <br><br>
       📧 You can contact me at my email : <a href="mailto:priyankach511@gmail.com">priyankach511@gmail.com</a><br><br>
       👩 Pronouns : she/her<br><br> 
-      ✨ Fun Fact : I still can't swim properly.....would love to learn someday. <br><br>
+      ✨ Fun Fact : I can talk about football for days
   </h4> 
 </div>
 
